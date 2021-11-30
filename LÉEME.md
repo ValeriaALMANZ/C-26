@@ -1,0 +1,1 @@
+este platillo me gusta mucho y aparte de ser una comida mexicana me gusta por su muy ligero sabor picantes y por que puedes acompañar el platillo con distintas bebidas
